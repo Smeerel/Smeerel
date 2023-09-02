@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Sreepriya Meerel
 - 👀 I’m interested in Business Analysis, Data Analysis, Project Management and Healthcare Data Management and Digital technology.
-- 🌱 I am currently learning all concepts and tools to advance my Professional skills as an Analyst.
+- 🌱 I am currently learning advanced concepts and digital tools related to Business and Data Analysis to advance my Professional skills as an Analyst.
+- 👉 You can reach out to me via: priyameerel@gmail.com or https://www.linkedin.com/in/sreepriya-meerel-399a14261/
   
   
 
